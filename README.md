@@ -1,0 +1,1 @@
+# DATA_FOR_JOURNAL
